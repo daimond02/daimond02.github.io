@@ -1,0 +1,1 @@
+# daimond02.github.io
